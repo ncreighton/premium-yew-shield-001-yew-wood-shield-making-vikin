@@ -1,0 +1,2 @@
+# premium-yew-shield-001-yew-wood-shield-making-vikin
+Fed up with shield-making guides that ignore the true wood of the Vikings, leaving you with a toy, not a tool? This step-by-step manual unlocks the secrets of yew wood — the Norse raider's choice for a round shield that's both historically authentic and battle-ready.  Most shield tutorials use generic woods or skip structural details, resulting in
